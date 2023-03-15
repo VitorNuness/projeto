@@ -3,3 +3,5 @@
 ---
 
 ## Experience
+
+- Finance Analyst
