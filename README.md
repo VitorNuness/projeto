@@ -8,6 +8,7 @@
 - 21 years
 - vitor1nuness@gmail.com
 - +55 14 99706 1888
+- Paris Nobrega
 
 ---
 
